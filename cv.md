@@ -22,3 +22,14 @@ Education
 
 *2015 - 2019*  
 **Faculty of International Relations, BSU** 
+
+Experience
+----------
+*NO EXPERIENCE YET*:disappointed_relieved:
+
+Languages
+----------
+
+* English - B2
+* German - A2   
+
